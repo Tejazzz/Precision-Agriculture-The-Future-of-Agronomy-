@@ -1,1 +1,1 @@
-# recision-Agriculture-The-Future-of-Agronomy-
+# Precision-Agriculture-The-Future-of-Agronomy-
